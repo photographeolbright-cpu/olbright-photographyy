@@ -1,1 +1,0 @@
-# olbright-photographyy
